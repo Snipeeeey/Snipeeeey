@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @Snipeeeey
-- 👀 I’m interested in cocks
-- 🌱 I’m currently learning sucky sucky
-- 💞️ I’m looking to collaborate aaaaa
-- 📫 How to reach me just dont
